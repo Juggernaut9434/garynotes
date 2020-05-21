@@ -326,7 +326,126 @@ and its software that is built with bugs and whatnot and the budget of
 a normal cinema masterpiece
 
 #### Shifts in games
+How is COVID going to affect us?
+go watch what they are making in the Sims
+They are hosting everyone in graduation.
+People are expressing themselves
+Generation of creators and the tools like Sims to create stories and content
 
+#### Biggest mistake thats on you
+G: I spent 15,000$ on winetext (2 weeks ago) and goes out and it was a dud
+should have kept on Facebook, etc
+
+C: When Obama was up for election, Starbucks invited people in to vote and get free cup of coffee. And 5 hours of volunteer and get cup of coffee, and people were stuck on the same joke said differently.
+
+
+## Carolyn Everson
+
+global business group in Facebook. 
+
+#### How do you feel losing the plank challenge
+Double down and rematch.
+And totally played with C's mind so well.
+
+#### Fired up about Facebook?
+G: Facebook is so rapid out of Facebook Inc. 
+
+C: We learned alot from all the crises and pace of innovation
+and for Mark is in a sweet spot. Leading in a good way.
+With good energy overall and responsibility to govt's and people
+
+#### What od you 
+lead global, Medium large business, and oversee globally
+lead marketing and science, been at FB for 9 years
+
+#### Whats the scoop, why pander too much, sentiment.
+G: there is no better option than FB, social. 
+Coke, BMW's underspending on the platform
+
+C: Trends have accelerating that took 10-12 years innovation happening 
+within weeks.
+Consumer behavior has shifted forever (digital)
+Like frictionless ordering wine
+Beauacracy is melting down, and velocity is there.
+Can't afford to be late to the game
+"What do we need to do today, so we don't regret 2-4 weeks from now" - Mark
+and seeing how fast we all need to move
+
+#### It is so easy to market to older people on FB, Good job or Bad on older people
+G: even though people send millions on commericals on TV
+
+C: we have not been leaned in enough and it is a big opportunity.
+and 8 M people depend on us to grow their business.
+with every meeting, use us only when we provide value.
+
+#### Happiness from winetext.com
+10/10 and is obsessed with the service and is game changing
+And see how it can be applied to everything.
+It will be in messenger and whatsApp
+
+## Kenny Mitchell
+
+G: you lost weight I can tell, and let nation in assists
+
+#### Intro
+Sr Yr College, wanted to lead NCAA in assists.
+@kmitch is twitter handle
+
+Mitch has been at Gatorade, McD, PepsiCo, NasCar, now Snap
+
+The humbling of working with the marketing minds of the world.
+
+We would get questions for athletes and communicating visually is the primary way and found most compelling. 
+Once Snap started Advertising, they hoped on it super fast, first 5.
+Were a pain to work with, but they were young, its hard and trying to figure things out.
+
+#### consumer would doesn't know about snap?
+The scale of the platform.
+In US there is larger community of 25+ then twitter of all of US.
+that is grounded in daily actively users.
+the scale is tremendous because it is a private platform
+Understanding the UX is only by trying out the platform.
+Wider than most think.
+
+#### snap chat originals
+Working directly with talent and companies and building orignal programming
+one of my favorites was with Will Smith and Production Group.
+"Will from home" was an inpriation thing connecting with friends and castmates
+and performed incrdibly well. 
+We have originals in US, Europe and shows that reach 10M community members
+
+#### diff from ad platform vs product like beverage
+Knowing the gaps between snap has told their story,
+but also different how many stake holders before
+consumer, advertiser, agency perspectives
+
+#### What is on mind, top priorty?
+Embracing the responsibility we have to users
+and the snapchat generation who are younger like Gen Z, millienials
+and making sure provided eduation, information, etc.
+it is used as communication between people closest to you
+
+#### Most iconic with Gatorade?
+G: I want people to know who the marketers and want to get to know 
+who these people are I look up for.
+
+K: I hung out with Gary and saw scores of people ask for a photo.
+Michael Jordan, Paten manning, usain bolt, but most favorite is
+Dwane Wade "the rock" and got to travel with him on the Gatorade business.
+Went to China and Australia. 
+China: 1000 people at airport waiting, felt like beatles coming to town.
+Seeing the love and admiration was crazy.
+Australia: 2011, rock tweets out half hour before appearance happens. 
+and 5K people were outside.
+
+## Wrap up
+
+newsletter, to get email 3 min before livestream.
+info@vaynermedia 
+Sign Me Up. put in to mail chimp
+Gonna get invite for next thursday's meeting
+vaynermedia.com links.
+Marketingforthenow@vaynerx.com 
 
 
 
