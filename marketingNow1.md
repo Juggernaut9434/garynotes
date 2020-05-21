@@ -2,6 +2,8 @@ Vaynermedia notes Marketing for the Now
 
 GenZ, ecommerce, esports, 
 
+Q - Quarantine
+
 shared on vaynerX.com
 #marketingforthenow
 
@@ -13,12 +15,12 @@ A rain delay is like Q, so the ones best prepped will win
 
 #### How to help employees
 Haven't cut people or salaries, but at the darkest moment
-the company was there for the employees and team.
+the company was there for their employees and team.
 Being active and being all in to the company
 
 #### What orgs, etc that have stood out in leaders
 ABI - big player in china, yet still shows humanity
-and cruise ships don't move the speed boat (metaphor for size of companies)
+and cruise ships don't move like the speed boat (metaphor for size of companies)
 
 #### Sport Business Board? Thinking? Coming Back?
 Some teams love debt and loss of revenues will hit hard.
@@ -34,7 +36,7 @@ Right now is the time when champions are built
 ARock Corp does real estate (18,000 apartments)
 PE/Venture side, owner of 20-25 companies
 where 1/3 are not so good, 1/3 floating, 1/3 doing well
-El Presidente started in 1935 and is huge deal for Alex
+El Presidente started in 19~~ and is huge deal for Alex
 
 #### Influencer collaborations
 SpencerX duetted with Elisha Keyes.
@@ -44,9 +46,7 @@ but it is tapping into other people, audiences.
 College kids know Alex through business podcasts
 
 #### Rookie cards for Alex Rodriguez is under priced
-NaN
-
-Steady ready, stay prepared. 
+Stay ready, stay prepared. 
 
 ## Marcel Marcondes
 
@@ -67,7 +67,7 @@ Redefine the agenda to pivot fast
 to adjust all the routines.
 Starts from within to change processes
 
-#### How to go fast when so big
+#### How to go fast when so big a company
 Overcommunicate, and have to be obsessed with consumer information
 Don't think about What If, you become more decisive.
 
@@ -103,7 +103,7 @@ We can never stop learning
 otherwise we will have trouble tomorrow
 
 #### What have we not talked about yet?
-Taking calc'd risk, and making decisions everyday
+Taking calculated risk, and making decisions everyday
 We will never have all the answers
 but the more we understand about consumers, the more comfortable we get about decisions
 
@@ -123,14 +123,14 @@ with the alcohol industry.
 CMO at NasCar
 
 #### nascar is live
-we are live and got wrapped up
+we are live and got wrapped up.
 went back to racing on may 17th
 First time to not have fans
-Had to do it with procedure in policy
+Had to do it with procedure in policy.
 public is starved for live sports content
 
 #### Down and Dirty, how insane is it do be the first
-Gary: not the first but the fast follower
+Gary: I am not the first but the fast follower
 
 J: There were 68 diff schedules to come back
 And dealing with different govenors
@@ -210,6 +210,7 @@ G: Parents are grovelling for kids to get out of the house
 
 #### Is Adobe delivering enough solutions?
 (tracer.tech)
+
 We went all digital 10 years ago.
 Today, addressible TV is an option,
 but digital ads have much more opportunity.
@@ -226,7 +227,7 @@ and is the best campaign overall
 It is taking agencies too long to get over to digital
 you can put in new creative when something is not working
 
-#### interact with Scott Belski
+#### interact with Scott Belsky
 He is awesome, been working together.
 head of product for creative
 integrate with all the products.
@@ -244,8 +245,8 @@ G: one of my favorite people
 gone on to be major force
 
 #### Intro to person
-c brand officer at weight watchers
-joined over 2 years
+chief brand officer at weight watchers,
+joined over 2 years,
 to transform from weight watchers to "ww"
 
 #### Monster company, how to pivot (general and microspecific)
@@ -257,6 +258,7 @@ W/i 6 days migrated to virtual workshops and trained 1000's of coaches
 
 #### big challenge
 It is hard to be from a far from all the people.
+Wanting to just reach out and hug Gary through the screen
 
 #### The app is a big role, scoop, (trend)
 Weight Lifting is way down and yoga is way up
@@ -307,7 +309,7 @@ also so many people coming for the first time
 Sims community is off the charts
 
 #### Challenges
-volume, 
+volume! 
 devs used to take time off, but now everyone is working full year
 including devs and marketing.
 big downside is people are tired but also recognize that this is the moment when champions are built.
@@ -323,7 +325,7 @@ Now at EA
 #### Big Titles, how hard
 EA lets out every year and takes 1000's of people to take to market
 and its software that is built with bugs and whatnot and the budget of 
-a normal cinema masterpiece
+a normal cinema masterpiece and takes 4-5 years to make
 
 #### Shifts in games
 How is COVID going to affect us?
