@@ -132,5 +132,6 @@ Get on the platforms, like majento, salesforce, Shopify.
 Promote yourself and sell yourself for free to get reviews
 and gain momentum.
 
+Do something positive and nice to raise the human spirit.
 
 end
